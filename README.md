@@ -37,3 +37,5 @@ You are in a dark stone chamber.
 There are doors to the north and east.
 > north
 You enter a torch-lit hallway...
+
+Slut
